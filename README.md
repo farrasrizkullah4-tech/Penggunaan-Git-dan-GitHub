@@ -1,1 +1,2 @@
-ini diedit di branch fitur-1
+ajo farras pamakan gulai jariang
+
